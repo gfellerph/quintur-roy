@@ -1,1 +1,2 @@
 # A city and a handful of dust
+A city of traders, built in the desert. In its midst and beneath the city is a strong river flowing towards the sea. The river created a canyon like landscape over the ages so the upper part of the city is level with the stream, the lower part is hunched in canyon walls and across the delta. There is a big waterfall from the upper to the lower city. The upper city is heavily protected by several rings of defence, rising to the sky with each inward layer and a big structure at the center on a hill.
